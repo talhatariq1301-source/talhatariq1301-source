@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Code, Graphic Designing and Data Entry**
 
-- 📫 How to reach me **talhaaatariq01@gmail.com**
+- 📫 How to reach me **talhatariq130101@gmail.com**
 
 - ⚡ Fun fact **I think I am Ambivert**
 
